@@ -1,4 +1,5 @@
-gehe jetzt müsli essen....mjamjmam
+hafafloggn.....leckaaaa!
+gehe jetzt müsli essen....köstlich
 ich bin wach und du schläfst noch
 Carl war eigentlich hier, am 02.03
 Carl war eigentlich hier....gar nicht!!!!
